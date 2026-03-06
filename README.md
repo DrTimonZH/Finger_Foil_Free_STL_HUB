@@ -22,5 +22,5 @@ Herzliche Grüße
 Timon
 
 
-LINK:
+LINK for Supporter:
 https://buymeacoffee.com/drtzh
